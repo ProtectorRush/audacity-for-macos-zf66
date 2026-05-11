@@ -1,4 +1,4 @@
-
+Audacity for macOS top Effect: lower-thirds & scene-transitions offers the most advanced Audacity for macOS effect, with lower-thirds and scene-transitions. Ideal for professional
 
 
 
